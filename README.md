@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hacker / Maker / Crafter
 
 <!--
 **HalcyonAura/HalcyonAura** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+PhD student in Engineering Education @ ASU
+
+Software Engineer ⌨️🐒 
+
+sunhacks director ☀️💻 
+
+GitHub Campus Expert 💖 
+
+Knitting while my code compiles 🔌
+
+💜
