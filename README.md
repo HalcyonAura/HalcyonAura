@@ -21,8 +21,10 @@ Software Engineer ⌨️🐒
 
 sunhacks director ☀️💻 
 
-GitHub Campus Expert 💖 
+GitHub Campus Expert 🚩💖 
+
+MLH Coach ❤️💙💛
 
 Knitting while my code compiles 🔌
 
-💜
+💜🤍🖤 🇵🇪
