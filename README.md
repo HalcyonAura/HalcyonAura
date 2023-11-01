@@ -19,7 +19,7 @@ PhD student in Engineering Education @ ASU
 
 Software Engineer ⌨️🐒 
 
-sunhacks director ☀️💻 
+sunhacks advisor ☀️💻 
 
 GitHub Campus Expert 🚩💖 
 
