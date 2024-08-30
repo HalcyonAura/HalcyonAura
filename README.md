@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-PhD candidate EESD @ ASU
+PhD Candidate EESD @ ASU
 
 Software Engineer ⌨️🐒 
 
