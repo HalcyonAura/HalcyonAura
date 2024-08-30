@@ -15,13 +15,15 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-PhD student in Engineering Education @ ASU
+PhD candidate EESD @ ASU
 
 Software Engineer ⌨️🐒 
 
 sunhacks advisor ☀️💻 
 
 GitHub Campus Expert 🚩💖 
+
+Hackathons UK Event Specialist 🤍💻
 
 MLH Coach ❤️💙💛
 
